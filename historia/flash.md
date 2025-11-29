@@ -1,1 +1,0 @@
-La historia de Flash se centra en dos personajes principales: el original, Jay Garrick, un deportista de 1940 que obtuvo súper velocidad tras inhalar vapores de agua pesada en un laboratorio, y Barry Allen, un científico forense que en 1956 fue golpeado por un rayo mientras trabajaba y adquirió sus poderes de la misma manera
